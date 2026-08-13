@@ -8,7 +8,8 @@ $${\color{#D5D6AA}destined}$$ $${\color{#FFFADA}to}$$ $${\color{#D5D6AA}fell}$$ 
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/2ee333c3d8ad6cf4ab4bb724c5a4f628.png" width="300" height="auto" align="center"></img></a> <br>
 
-[.@rentry](https://rentry.co/Dawn_Angel) ▒  [.@strawpage](https://httpsdawnangelstrawpage.straw.page)
+[.@rentry](https://rentry.co/Dawn_Angel)&nbsp;&nbsp;&nbsp; <img width="20" heigh="normal" alt="something" src="https://img.sanishtech.com/u/af0ce602c6417b11ab9bdf145a365c56.gif" /> &nbsp;&nbsp;&nbsp; [.@strawpage](https://httpsdawnangelstrawpage.straw.page)
+
 $${\color{#D5D6AA}sign}$$ $${\color{#FFFADA}straw}$$ $${\color{#D5D6AA}and}$$ ㅤ $${\color{#FFFADA}read}$$ $${\color{#D5D6AA}rentry.}$$ </br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/0dc0bdcf547c06aaa782882f8e48d7e3.png" width="300" height="auto" align="center"></img></a> <br>
