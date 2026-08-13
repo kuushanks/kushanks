@@ -1,5 +1,6 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/10d5096093eaaadd5d2301c0a02d94a1.png" width="300" height="auto" align="center"></img></a> <br>
 
+![](https://komarev.com/ghpvc/?username=CATAL0G&label=blegh+ִֶָ🪽་༘&color=FFFADA)
 ##### <p align="center"><img src="https://img.sanishtech.com/u/e450e55835a2a3828b3fb4df64257128.png" width="200" height="auto" align="center"></img></a> <br>
 
 $${\color{#D5D6AA}my}$$ $${\color{#FFFADA}moon}$$ $${\color{#D5D6AA}and}$$ ㅤ $${\color{#FFFADA}my}$$ $${\color{#D5D6AA}man.}$$ </br>
