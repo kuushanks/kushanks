@@ -1,6 +1,6 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/10d5096093eaaadd5d2301c0a02d94a1.png" width="300" height="auto" align="center"></img></a> <br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/04a72d6578de2cfeba2e8481aee3df93.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/e450e55835a2a3828b3fb4df64257128.png" width="200" height="auto" align="center"></img></a> <br>
 
 $${\color{#D5D6AA}my}$$ $${\color{#FFFADA}moon}$$ $${\color{#D5D6AA}and}$$ ㅤ $${\color{#FFFADA}my}$$ $${\color{#D5D6AA}man.}$$ </br>
 
