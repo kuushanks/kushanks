@@ -1,4 +1,3 @@
-![](https://komarev.com/ghpvc/?username=CATAL0G&label=blegh+ִֶָ🪽་༘&color=B63E50)
 ##### <p align="center"><img src="https://img.sanishtech.com/u/85863a69c8d08591eccdaead8824e3e2.png" width="200" height="auto" align="center"></img></a> <br>
 
 $${\color{#B63E50}my}$$ $${\color{#4797B2}moon}$$ $${\color{#B63E50}and}$$ ㅤ $${\color{#4797B2}my}$$ $${\color{#B63E50}man.}$$ </br>
