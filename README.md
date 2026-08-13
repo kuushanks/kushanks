@@ -11,7 +11,7 @@ $${\color{#D5D6AA}destined}$$ $${\color{#FFFADA}to}$$ $${\color{#D5D6AA}fell}$$ 
 [.@rentry](https://rentry.co/Dawn_Angel) ▒  [.@strawpage](https://httpsdawnangelstrawpage.straw.page)
 $${\color{#D5D6AA}sign}$$ $${\color{#FFFADA}straw}$$ $${\color{#D5D6AA}and}$$ ㅤ $${\color{#FFFADA}read}$$ $${\color{#D5D6AA}rentry.}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/0dc0bdcf547c06aaa782882f8e48d7e3.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/0dc0bdcf547c06aaa782882f8e48d7e3.png" width="300" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/ae8142490d811afb425117c1ed1bacd5.png" width="300" height="auto" align="center"></img></a> <br>
 
