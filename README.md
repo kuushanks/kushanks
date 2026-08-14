@@ -13,8 +13,11 @@ $${\color{#B63E50}sign}$$ $${\color{#4797B2}straw}$$ $${\color{#B63E50}and}$$ ã…
 </div><align="center">
 
   jess / dawn
+
 5teen - asian
+
     transgender / asexual
 
-fndms dniuid ,DNI marace & lawlu
+fndms dniuid , DNI marace & lawlu
+
   block freely / iwecuparty
