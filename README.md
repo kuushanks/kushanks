@@ -16,7 +16,7 @@ $${\color{#B63E50}sign}$$ $${\color{#4797B2}straw}$$ $${\color{#B63E50}and}$$ ã…
 
 5teen - asian
 
-    transgender / asexual
+   transgender / asexual
 
 fndms dniuid , DNI marace & lawlu
 
