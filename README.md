@@ -1,4 +1,4 @@
-<img align="left" src="https://img.sanishtech.com/u/dd7913698b2081cdaae6f974c02a24e3.png"> width="300" height="auto"
+<img align="left" src="https://img.sanishtech.com/u/dd7913698b2081cdaae6f974c02a24e3.png">
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
