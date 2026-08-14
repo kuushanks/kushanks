@@ -10,14 +10,3 @@ $${\color{#B63E50}sign}$$ $${\color{#4797B2}straw}$$ $${\color{#B63E50}and}$$ ã…
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/b5552e6f8898c35785a3a599172c1870.png" width="300" height="auto" align="center"></img></a> <br>
 
-</div><align="center">
-
-  jess / dawn
-
-5teen - asian
-
-   transgender / asexual
-
-fndms dniuid , DNI marace & lawlu
-
-  block freely / iwecuparty
