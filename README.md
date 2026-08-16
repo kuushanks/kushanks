@@ -1,4 +1,4 @@
-<img align="left" width="300" src="https://img.sanishtech.com/u/f095f0593ca1dbad207d5409a8081dec.png">
+<img align="left" width="200" src="https://img.sanishtech.com/u/f095f0593ca1dbad207d5409a8081dec.png">
 
 $${\color{#B63E50}my}$$ $${\color{#4797B2}moon}$$ $${\color{#B63E50}and}$$ ㅤ $${\color{#4797B2}my}$$ $${\color{#B63E50}man.}$$ </br>
 
