@@ -11,5 +11,5 @@ $${\color{#4797B2}destined}$$ $${\color{#B63E50}to}$$ $${\color{#4797B2}fell}$$ 
 $${\color{#B63E50}sign}$$ $${\color{#4797B2}straw}$$ $${\color{#B63E50}and}$$ ㅤ $${\color{#4797B2}read}$$ $${\color{#B63E50}rentry.}$$ </br>
 
 $${\color{#B63E50}˙˚ʚɞ˚˙}$$
-[@rentry](https://rentry.co/Dawn_Angel) ▒  [@strawpage](https://httpsdawnangelstrawpage.straw.page)
+[@rentry](https://rentry.co/Dawn_Angel) 🥂  [@strawpage](https://httpsdawnangelstrawpage.straw.page)
 </p>
