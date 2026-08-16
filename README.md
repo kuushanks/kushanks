@@ -8,12 +8,12 @@ $${\color{#4797B2}destined}$$ $${\color{#B63E50}to}$$ $${\color{#4797B2}fell}$$ 
 
 <img align="right" width="200" src="https://img.sanishtech.com/u/417dd8ee2fb55a50f8a35d0c4c9979f5.png">
 
-$${\color{#B63E50}sign}$$ $${\color{#4797B2}straw}$$ $${\color{#B63E50}and}$$ ㅤ $${\color{#4797B2}read}$$ $${\color{#B63E50}rentry.}$$ </br>
+$${\color{#B63E50}sign}$$ $${\color{#4797B2}straw}$$ $${\color{#B63E50}and}$$ ㅤ $${\color{#4797B2}pls}$$ $${\color{#B63E50}fndms dniuid.}$$ </br>
 
 <p align="center">
 
 $${\color{#B63E50}˙˚ʚɞ˚˙}$$
-[@rentry](https://rentry.co/Dawn_Angel) 🥂  [@strawpage](https://httpsdawnangelstrawpage.straw.page)
+🥂 [@strawpage](https://httpsdawnangelstrawpage.straw.page)
 </p>
 
 [main](https://github.com/URAHARA-KI) . [alt 2](https://github.com/crocsmoke)
