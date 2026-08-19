@@ -6,7 +6,7 @@ $${\color{#B63E50}my}$$ $${\color{#4797B2}moon}$$ $${\color{#B63E50}and}$$ ㅤ $
 $${\color{#4797B2}destined}$$ $${\color{#B63E50}to}$$ $${\color{#4797B2}fell}$$ ㅤ $${\color{#B63E50}in}$$ $${\color{#4797B2}love.}$$ </br>
  </p>
 
-<img align="right" width="200" src="https://img.sanishtech.com/u/417dd8ee2fb55a50f8a35d0c4c9979f5.png">
+<img align="right" width="200" src="https://img.sanishtech.com/u/7431520438ca473efd72138bd01b48bc.png">
 
 $${\color{#B63E50}sign}$$ $${\color{#4797B2}straw}$$ $${\color{#B63E50}and}$$ ㅤ $${\color{#4797B2}pls}$$ $${\color{#B63E50}fndms dniuid.}$$ </br>
 
