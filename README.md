@@ -1,4 +1,4 @@
-<img align="center" width="300" src="https://img.sanishtech.com/u/112b8c2a3a9240bf84115530b56755a8.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/8db4358d71d8f88fd5cea7e8d4850123.png">
 
 <br>
 
